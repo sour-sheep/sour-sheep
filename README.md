@@ -1,2 +1,1 @@
-Maxwell
-Minnesota '23
+Maxwell, Minnesota '23
